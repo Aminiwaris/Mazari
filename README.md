@@ -1,0 +1,2 @@
+# Mazari
+Kabuli Pulao
